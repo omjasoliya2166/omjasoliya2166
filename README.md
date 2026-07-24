@@ -57,7 +57,7 @@ I believe in learning by doing — whether it's experimenting with new tools, bu
 
 ## 📫 Connect With Me
 
-* GitHub: https://github.com/YOUR_USERNAME
+* GitHub: https://github.com/omjasoliya2166
 
 ---
 
